@@ -1,5 +1,5 @@
 # Resika_MD
-LK BEST WHATSAPP BOT CREATED BY RESIKA Hirushan❤️‍🩹😚
+LK BEST WHATSAPP BOT CREATED BY RESIKA HIRUSHAN❤️‍🩹😚
 
 
 <div align="center">
