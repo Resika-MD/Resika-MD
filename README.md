@@ -1,16 +1,15 @@
-## Hi there 👋
+# Resika_MD
+LK BEST WHATSAPP BOT CREATED BY RESIKA Hirushan❤️‍🩹😚
 
-<!--
-**Resika-MD/Resika-MD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<b>GET SESSION ID VIA PAIR CODE 01</b>
+
+<a href='https://resika-md-pair-web.onrender.com' target="_blank"><img alt='Get Session ID' src='https://img.shields.io/badge/Click here to get your session id-blue?style=for-the-badge&logo=opencv&logoColor=white'/></a>
+ 
+<b>CONTACT OWNER</b>
+
+[My Contact](https://wa.me/94740648241)
+<hr>
